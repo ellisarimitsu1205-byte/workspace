@@ -1,0 +1,1 @@
+Chronicles the 40-year journey of the Israelites as they travel from Mount Sinai to the borders of the Promised Land
